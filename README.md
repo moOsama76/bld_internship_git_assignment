@@ -51,7 +51,6 @@ ahmedosamadiab@gmail.com
 tawfikmelad25@gamil.com
 mohamed.harby.ce@gmail.com
 ahmedmohamed00775@gmail.com
-ahmedmohamed00775@gmail.com
 ahmed.mohamed.abdelhamed2@gmail.com
 mostafa.abdullah1411@gmail.com
 m.ehab150@gmail.com
@@ -64,3 +63,4 @@ amro201762@bue.edu.eg
 karimosalamy@gmail.com
 eng.moustafa.abdelhady@gmail.com
 hossam.hssan47777@gmail.com
+abdelrahman.farah3@gmail.com
