@@ -33,6 +33,7 @@ abdallahmselim@gmail.com
 noureldin.hesham.shaker@gmail.com
 abdulrhmansayedali@gmail.com
 m.abdulhady00@gmail.com
+moadelzsc2002@gmail.com
 pmourad772@gmail.com
 ahmedgamal.ssaleh@gmail.com
 shadyhosam200@gmail.com
@@ -48,4 +49,11 @@ amrbomadian8@gmail.com
 ahmedosamadiab@gmail.com
 mohamed.harby.ce@gmail.com
 esraa.m.bahaaeldin@gmail.com
-esraa.m.bahaaeldin@gmail.com
+ahmedmohamed00775@gmail.com
+ahmed.mohamed.abdelhamed2@gmail.com
+mostafa.abdullah1411@gmail.com
+m.ehab150@gmail.com
+Mohamed.Ibrahim.Ahmed@outlook.com
+ahmed.muhammad302@eng-st.cu.edu.eg
+ahmedkhairym0@gmail.com
+
