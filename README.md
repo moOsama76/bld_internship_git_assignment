@@ -47,5 +47,6 @@ andrewezzatmn16@gmail.com
 amrbomadian8@gmail.com
 ahmedosamadiab@gmail.com
 mohamed.harby.ce@gmail.com
+ahmedmohamed00775@gmail.com
+ahmed.mohamed.abdelhamed2@gmail.com
 mostafa.abdullah1411@gmail.com
-
